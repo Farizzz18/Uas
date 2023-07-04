@@ -1,2 +1,0 @@
-# Uas
-Izin mengumpulkan pak
